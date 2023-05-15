@@ -1,5 +1,5 @@
 # creator-panel-feature
-**Contest 2**
+**Contest 2**  (120 $HV)
 
 
 
